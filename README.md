@@ -1,1 +1,1 @@
-# -Dr.-Vikas-Divyakirti-s-Indian-Philosophy
+# Philosophy
